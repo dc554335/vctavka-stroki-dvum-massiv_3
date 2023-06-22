@@ -1,0 +1,1 @@
+# vctavka-stroki-dvum-massiv_3
